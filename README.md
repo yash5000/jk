@@ -1,1 +1,1 @@
-# send pr and get tee shirt
+# send pr and get t shirt
